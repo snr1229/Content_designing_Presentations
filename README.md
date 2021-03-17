@@ -3,3 +3,8 @@
 
 3조 공동 공유 게시판
 팀원 : 강은영(팀장) 고동우 김정표 김주헌
+
+
+
+3조 회의 자료
+: https://drive.google.com/drive/folders/1G7asz35jHixpmiRnrDil26K3daNydpnC?usp=sharing
